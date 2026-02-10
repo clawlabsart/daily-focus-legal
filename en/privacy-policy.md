@@ -1,0 +1,1 @@
+** APP privacy policy **
